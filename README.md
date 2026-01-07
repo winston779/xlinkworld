@@ -1,6 +1,6 @@
 # Xlinkworld机场官网地址
 
-最新地址：[xlinkworld.cc](https://www.xlinkworld.cc/aff.php?aff=4835)
+最新地址：[xlinkworld.cc](https://www.xlinkworld.io/aff.php?aff=4835)
 
 ## Xlinkworld介绍
 
